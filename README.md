@@ -2,4 +2,4 @@
 
 🧑🏽‍💻Software Engineer having a perticular interest in Machine Learning and AWS CLoud ☁ <br/>
 🎓 Studied Computer Science from Lovely Professional University , India<br/>
-    Currently Learning Web Development , Web3 CI/CD integration and Deployment <br/>
+    Currently Learning Project Management, data analysis , machine lerningn powerBI, tableau, salesforce and much more<br/>
